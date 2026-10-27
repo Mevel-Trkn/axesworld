@@ -1,0 +1,1 @@
+dikkatli ol (nolur sövme)
